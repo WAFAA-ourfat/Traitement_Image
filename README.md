@@ -1,1 +1,7 @@
-# Traitement_Image
+# Traitement_Image![imag](https://github.com/WAFAA-ourfat/Traitement_Image/assets/123248901/ec85d7b7-14c3-4fb3-9d10-1be30c27a37c)
+![rouge](https://github.com/WAFAA-ourfat/Traitement_Image/assets/123248901/c9c47193-27c6-4871-9f0e-cc412df96437)
+![imag](https://github.com/WAFAA-ourfat/Traitement_Image/assets/123248901/bfb0669c-963a-4522-b788-73e764454011)
+![rouge](https://github.com/WAFAA-ourfat/Traitement_Image/assets/123248901/35a9c34c-097c-4fe8-ae89-34d2d06942cb)
+![vert](https://github.com/WAFAA-ourfat/Traitement_Image/assets/123248901/2b8b6767-7a02-4349-9e8f-43fef9245b71)
+![bleau](https://github.com/WAFAA-ourfat/Traitement_Image/assets/123248901/85c0b1f1-861b-4a75-8817-23a424e16b5c)
+![melange](https://github.com/WAFAA-ourfat/Traitement_Image/assets/123248901/39011966-f41c-4600-8dd2-c8c9de3ad233)
